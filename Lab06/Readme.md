@@ -2,31 +2,61 @@ https://trello.com/invite/b/6807e47f209b1d0be509617b/ATTIb1fb06b93e5fb301ee23102
 
 📓 Parte 1: Diario de debilidades
 📉 ¿Qué debilidades personales o académicas reconozco hoy?
-Me cuesta organizar bien mis tiempos de estudio, a veces dejo todo para último momento.
+Hoy reconozco varias cosas sobre mí:
 
-Me falta seguridad al participar en clase o exponer ideas delante de otros.
+A veces me cuesta organizarme cuando tengo varias ideas y tareas al mismo tiempo.
 
-Suelo empezar proyectos personales o académicos con entusiasmo, pero me cuesta mantener la constancia y terminarlos.
+Me emociona empezar proyectos, pero me falta constancia para mantenerlos con el mismo entusiasmo.
+
+Aunque puedo hablar en público, me sigo poniendo nervioso y eso me juega en contra al momento de transmitir seguridad.
+
+Me resulta difícil establecer conversaciones con personas nuevas o desconocidas; me gana la timidez y a veces dudo de cómo empezar o qué decir.
 
 💡 ¿Qué estrategias puedo aplicar para mejorar en esas áreas?
-Organización de tiempos: Usar una agenda digital o app (como Google Calendar o Trello) para planificar mis horarios de estudio y tiempos de descanso.
+Para mejorar, voy a:
 
-Mejorar la seguridad al participar: Preparar previamente lo que quiero decir y participar al menos una vez por clase, aunque sea con una pregunta.
+Organizar mis proyectos y tareas en un Trello con objetivos pequeños, semanales y alcanzables.
 
-Constancia en proyectos: Dividir los proyectos en tareas pequeñas y colocar recordatorios semanales para revisar avances.
+Practicar hablar en público en entornos de confianza (con amigos o familia) y grabarme para evaluar mi expresión y postura.
+
+Animarme a hablar con una persona nueva cada semana, aunque sea para preguntar algo o iniciar una conversación breve.
+
+Recordarme que no necesito ser perfecto para empezar a compartir mis ideas y que todos comenzamos desde algún punto.
 
 🤔 ¿A quién podría pedir ayuda o guía?
-A mis profesores o tutores, para obtener recomendaciones y consejos prácticos.
+A mis amigos, para practicar charlas y presentaciones entre nosotros.
 
-A compañeros de clase con buenas habilidades organizativas o que ya hayan enfrentado situaciones similares.
+A profesores o mentores que me den feedback sobre cómo comunicar mejor.
 
-A algún amigo o familiar que me pueda motivar y ayudar a seguir mis planes.
+A personas que admiro por su seguridad o forma de hablar, para aprender observando y conversando con ellos.
 
+🚀 Parte 2: Mi plan de mejora
+✅ Objetivo académico
+Mejorar mi capacidad para organizar mis tiempos de estudio y proyectos en paralelo.
 
-🚀 Parte 2: Mi plan de mejora Completa el siguiente esquema de manera sincera:
+Planificar mis horarios de estudio y tiempos para proyectos.
 
-✅ Objetivo académico: Ejemplo: mejorar mi capacidad para organizar tiempos de estudio.
+Organizar todo en Trello y revisar mi avance cada semana.
 
-💖 Objetivo emocional: Ejemplo: trabajar en mi confianza al participar en clases.
+Entregar mis trabajos a tiempo y dejar espacio para avanzar en mis ideas.
 
-🌱 Objetivo de desarrollo personal: Ejemplo: desarrollar la constancia en mis compromisos. Hacer un tablero en trello o similar para rastrear tu progreso, poniendo tus objetivos acorde a su proximidad corto, medio y largo plazo. hazme esto
+💖 Objetivo emocional
+Trabajar en mi confianza, quitarme los nervios al hablar y mejorar al tratar con gente nueva.
+
+Participar más seguido en clase y reuniones.
+
+Hablar con al menos una persona nueva por semana.
+
+Grabarme hablando sobre un tema corto y ver en qué puedo mejorar.
+
+Recordarme que los nervios son normales y que con práctica se controlan.
+
+🌱 Objetivo de desarrollo personal
+Formar y consolidar mis proyectos personales con amigos, y crecer como persona.
+
+Crear un equipo de software con amigos para hacer proyectos y ofrecer servicios.
+
+Crear una agencia de publicidad y marketing digital con otros amigos.
+
+Trabajar en mi seguridad personal, practicando más charlas, y atreviéndome a conocer personas nuevas, sin miedo al rechazo o a equivocarme.
+

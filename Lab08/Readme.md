@@ -1,23 +1,25 @@
 💥 Parte 1: Mi reacción frente al conflicto
 🧯 ¿Qué tipo de conflictos enfrento más seguido?
-Los conflictos que enfrento más seguido son académicos y emocionales. A veces se combinan, especialmente cuando me siento frustrado por no avanzar como quisiera en mis estudios o proyectos.
+Los conflictos que más enfrento tienen que ver con la frustración interna. Me pasa mucho cuando algo no me sale como lo había planeado: cuando un proyecto no avanza, cuando el código falla una y otra vez, o cuando siento que no estoy rindiendo como esperaba. Son conflictos conmigo mismo, donde lucho con la idea de que debería estar haciendo mejor las cosas.
 
 🗯️ ¿Cómo suelo reaccionar?
-Sinceramente, a veces me callo y me guardo lo que pienso, pero cuando acumulo mucho, puedo explotar o sentirme abrumado. También suelo evitar el conflicto por miedo a que empeore.
+La mayoría de veces me lo guardo, pero por dentro me quemo de rabia o ansiedad. Me frustro tanto que me dan ganas de rendirme o de dejarlo todo por un rato. A veces exploto en silencio, apagando todo y evitando seguir con lo que estaba haciendo.
 
 🤯 ¿Cómo me siento después de un conflicto mal manejado?
-Me siento con culpa, confundido, y a veces hasta más estresado que antes. Pienso mucho en lo que debí decir o hacer, y eso me desgasta emocionalmente.
+Me siento vacío, estresado y culpable. Sé que alejarme o rendirme por frustración no ayuda, pero en el momento no sé cómo salir de esa espiral mental. A veces me digo cosas negativas, y eso me baja más el ánimo. Es como un bucle que quiero aprender a cortar a tiempo.
 
 🌈 ¿Qué persona admiro por cómo resuelve conflictos y por qué?
-Admiro a una persona cercana (como un profesor, amigo o familiar, dependiendo del contexto) que siempre mantiene la calma, escucha sin interrumpir y busca soluciones sin hacer sentir mal a nadie. Me inspira porque demuestra que se puede ser firme sin perder el respeto ni la empatía.
+Admiro a Spider-Man porque, a pesar de tener problemas personales, emocionales y muchas responsabilidades, siempre intenta hacer lo correcto sin dejarse dominar por la rabia o la desesperación. Incluso cuando todo se le viene abajo, no pierde su lado humano.
+También admiro a algunos amigos míos que saben calmarse en medio del caos, que no se enganchan fácilmente y que saben hablar con claridad cuando algo va mal. Aprendo de ellos cada vez que los veo resolver algo sin gritar ni explotar.
 
-🛠️ Parte 2: Estrategia personal de resolución
+🛠️ Parte 2: Estrategia personal de resolución de conflictos
 💬 Frase que quiero recordar para no reaccionar impulsivamente
-“No todo necesita una respuesta inmediata. Respira primero.”
+"Primero respiro, luego respondo. No todo depende de mí, y está bien equivocarse."
 
 🤝 Habilidad que quiero practicar
-Escucha activa: realmente prestar atención a lo que la otra persona dice, sin pensar solo en lo que voy a responder.
+Regulación emocional + autocompasión.
+Quiero aprender a manejar mi frustración sin culparme tanto. A entender que fallar o no poder con algo no significa que no sirva, solo que tengo que ajustar el plan o darme tiempo. Y también quiero ser más amable conmigo mismo cuando las cosas no salen como espero.
 
 🧪 Próximo conflicto que puedo practicar resolver mejor
-Un posible conflicto en una discusión de grupo por un proyecto académico, donde no todos están cumpliendo su parte. Quiero practicar expresar lo que pienso sin atacar, y buscar soluciones que ayuden al equipo.
-
+Cuando un proyecto personal o académico no me sale como lo esperaba.
+En lugar de frustrarme y dejarlo, quiero respirar, organizar mejor los pasos, pedir ayuda si la necesito y continuar sin presionarme tanto. Practicar la paciencia conmigo mismo es mi reto.

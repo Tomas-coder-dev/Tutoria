@@ -1,23 +1,23 @@
-✍️ Parte 1: 📊 Bitácora de mitad de ciclo
-🔍 ¿Qué aprendizajes o avances personales reconozco hasta ahora?
-A lo largo de este ciclo he notado un crecimiento significativo en mi forma de enfrentar los retos. He aprendido a gestionar mejor mi tiempo, a usar herramientas digitales con más fluidez y, sobre todo, a confiar en mi capacidad para resolver problemas por mí mismo. Ya no me detengo tanto por el miedo a equivocarme, sino que me permito experimentar, aprender del error y seguir adelante. También he desarrollado una mayor conciencia sobre la importancia de la disciplina diaria y el enfoque.
+Parte 1: Carta desde la compasión
 
-💼 ¿Qué retos me han costado más y por qué?
-Me ha costado bastante mantener la constancia en momentos de desánimo o cansancio. A veces subestimo la cantidad de esfuerzo que requiere cada tarea y termino saturado. Además, equilibrar lo académico con lo personal no siempre ha sido fácil. Me he enfrentado al reto de organizarme mejor para no sentirme agobiado, y aunque he mejorado, todavía hay margen para crecer en ese aspecto.
+Deja de autosabotearte porque mereces intentarlo sin miedo, mereces vivir sin esa constante presión de ser perfecto. Lo que sientes es natural, pero no te dejes atrapar por las dudas y temores. Te has esforzado tanto, y es hora de permitirte el espacio para ser humano, para cometer errores, y aún así seguir adelante con amor y paciencia.
 
-🧠 ¿Qué emociones han sido frecuentes en mis días? ¿Cómo las gestiono?
-La ansiedad, el estrés y la frustración han sido frecuentes, sobre todo cuando las cosas no salen como las planeo. Pero también he sentido orgullo, satisfacción y alegría cuando logro avanzar o resolver algo difícil. Para gestionarlas, me he apoyado en pequeños hábitos como tomar pausas conscientes, salir a caminar, escribir lo que siento o simplemente desconectarme un momento para recargar energías. Aprendo a darme espacio sin rendirme.
+🧠 ¿Qué miedo o creencia está bloqueando tus decisiones?
+Siento que tengo miedo al fracaso, al hecho de que no sea lo suficientemente bueno o capaz. A veces dudo de mis propias habilidades y me paralizo pensando que no voy a cumplir las expectativas, ya sea de los demás o de mí mismo. Ese miedo al error me hace tomar decisiones desde el temor en lugar de la confianza.
 
-🛠️ ¿Qué cambiaría si volviera a empezar este ciclo hoy?
-Planificaría con más detalle desde el primer día, incluyendo momentos para descansar y repasar. Evitaría postergar tareas pequeñas que luego se acumulan y me generan más carga. También me hablaría con más compasión cuando cometo errores, entendiendo que todo forma parte del proceso. Y buscaría más apoyo: hablar con docentes o compañeros desde el principio, sin esperar a que las cosas se compliquen.
+🔎 ¿Qué parte de ti necesita más comprensión y no más exigencia?
+Creo que mi mente necesita descanso, comprensión y un respiro. Soy muy exigente conmigo mismo, constantemente buscando ser mejor, hacer más, avanzar más rápido. Pero a veces me olvido de que no todo es un sprint, que el camino también es válido. Esa parte que aún se siente insegura, que duda, necesita ser abrazada y entendida, no castigada.
 
-🚀 Parte 2: 🎯 Mi nuevo plan de acción
-✅ Meta personal o académica para las siguientes semanas:
-Consolidar un ritmo de trabajo más equilibrado y sostenido que me permita avanzar con seguridad, sin caer en la procrastinación ni el agotamiento mental.
+💬 ¿Qué te dirías si fueras tu mejor amigo?
+Te diría que no te olvides de lo lejos que has llegado y que cada paso, incluso el que consideras un "error", es parte de tu crecimiento. Te recordaría que no tienes que ser perfecto para ser valioso y que está bien descansar, reflexionar y seguir. Te diría: "Eres suficiente tal y como eres. Estás en el camino, sigue adelante con confianza."
 
-🔁 Hábito que voy a incorporar o fortalecer:
-Dedicar al menos 30 minutos diarios, de lunes a viernes, a repasar contenidos clave del día y anticiparme a las tareas de la semana. También implementar una planificación semanal cada domingo por la noche.
+Parte 2: Reencuadre del error
 
-🌈 Compromiso conmigo mismo/a:
-Me comprometo a cuidarme más, a reconocer mi esfuerzo sin ser tan duro conmigo mismo, y a seguir creciendo sin olvidar que cada paso, incluso los más lentos, también cuentan. Me prometo ser constante, flexible y leal a mis metas.
+❌ Error o decisión que me marcó:
+A veces no he tomado oportunidades por miedo al rechazo o a no ser lo suficientemente bueno, como en el caso de no postularme a ciertos proyectos o becas porque me sentía insuficiente.
 
+🔄 Lo que aprendí con el tiempo:
+He aprendido que el miedo nunca desaparece por completo, pero puedo avanzar con él. No se trata de eliminar los temores, sino de usarlos como una señal de que estoy saliendo de mi zona de confort, de que estoy creciendo. Incluso los "fracasos" pueden ser lecciones valiosas.
+
+🌱 Mi nuevo compromiso personal:
+Mi compromiso es avanzar a pesar de la duda. Aceptar que no todo será perfecto, pero eso no me detendrá. Elegir actuar, aprender y crecer con cada paso, sin importar los resultados. Prometo ser más amable conmigo mismo y dejar de lado las expectativas irreales.
